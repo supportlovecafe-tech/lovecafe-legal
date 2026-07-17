@@ -1,4 +1,4 @@
-# Privacy Policy for Love Cafe (Cinema Eats)
+# Privacy Policy for Love Cafe
 
 **Last Updated:** July 17, 2026
 
